@@ -1,1 +1,2 @@
-# 14-5-2025
+# 14-5-2025.
+Problemen met strato.
